@@ -16,3 +16,5 @@
 ##### gv5v (Discord: gv5v#9010)
 
 # WARNING! May contain viruses, has not been checked.
+
+##### INFO! Proof of original! https://prnt.sc/1pu6ffo
